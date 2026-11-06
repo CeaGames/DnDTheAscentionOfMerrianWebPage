@@ -1,6 +1,6 @@
 #PoliticalPower
 
-This organization lived long before [[The Merrian Peace Declaration]], and were opposed to it's existence. Since then they have been trying to start a rebellion against [[The Brothers of Merrian]]. They have created their own government in the galaxy in [[The Dishonest]] region. They believe in a [[necromantic communist regime]] is what the galaxy needs. This means they rule as descendants of [[The Ancient Caretakers]] but make sure not to change or remove any law made by them. As technically speaking [[The Ancient Caretakers]] still lead, even though they are dead.
+This organization lived long before [[The Merrian Peace Declaration]], and were opposed to it's existence. They do not believe it fair that the galaxy is just without vote, without say, without any way of changing it divided amongst 7 brothers (in general they also just disagree with a lot of the the brother's methods). Since then they have been trying to start a rebellion against [[The Brothers of Merrian]]. They have created their own government in the galaxy in [[The Dishonest]] region. They believe in a [[necromantic communist regime]] is what the galaxy needs. This means they rule as descendants of [[The Ancient Caretakers]] but make sure not to change or remove any law made by them. As technically speaking [[The Ancient Caretakers]] still lead, even though they are dead.
 
 They have two main goals: 
 1. Wipe out [[The Loyalists]]

@@ -1,2 +1,4 @@
 #Merrian/BrotherOfMerrian #PoliticalPower 
-Named after Hanging gardens of Babylon
+(Meta note: Named after Hanging gardens of Babylon)
+
+Originally from a tribe of [[Carni's]] subrace lion.
