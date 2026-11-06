@@ -1,0 +1,3 @@
+#RuleSystem 
+Every 4 years an 8 year old child in the region with potential has to read the stars at the star festival. The child who reads the best gets picked by [[Light Xandria Of Merrian]] as his monarch and together they lead.
+This ruling was brought by [[Light Xandria Of Merrian]] because he strongly believed in the innocence of the children and the will of the stars. Since the children are still young they don't yet want power, only what the stars tell them. This system is completely voluntary, the children are not forced into becoming the monarch. It is actually considered a high honour. 

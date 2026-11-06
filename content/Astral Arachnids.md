@@ -1,0 +1,3 @@
+![[Pasted image 20261022110101.png]]
+
+Upon first meeting the [[Astral Arachnids]] they looked scary and monster like. People started liking them when they started to notice how organized, efficient and peacefully the [[Astral Arachnids]] live. There is a reason why this species was the first to invent space travel and why [[Otheca]] was one of the densest populated planets in the galaxy before the appearance of [[Serif Merrian]] in the year 0. 

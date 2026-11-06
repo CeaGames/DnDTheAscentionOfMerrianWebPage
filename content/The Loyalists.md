@@ -1,0 +1,2 @@
+#PoliticalPower
+This organization lived long before [[The Merrian Peace Declaration]], however they were not against it. As long as they could live in [[The Dishonest]] region diplomatically, there was no problem. [[The Loyalists]] are currently not a government but a resistance against [[The Rebels]]. [[The Loyalists]] believe in [[Democratic Capitalism]] (like [[The Democratic Institute of Gavaldee]]). They want to bring back this system ever since [[The Rebels]] overthrew the system with the [[necromantic communist regime]]. 

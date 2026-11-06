@@ -1,0 +1,2 @@
+#RuleSystem
+Coming from the word Latin word cognatus meaning Kin. The largest family rules. This might cause families killing each other and the whole organization kind of feels like an Italian crime family.

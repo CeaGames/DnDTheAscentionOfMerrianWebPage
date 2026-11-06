@@ -1,0 +1,2 @@
+#Merrian 
+ [[The Brothers of Merrian]] would be named governors to their respective areas given to them by [[Serif Merrian|their mother]]. As governors they were allowed to choose exactly how to rule under a system called [[Vivitocracy]]. The main philosophy being: The amount of area you get is directly correlated to how many people live in you region. 
